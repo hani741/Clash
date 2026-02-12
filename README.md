@@ -70,7 +70,7 @@
 
 #### 迷途猫机场官网
 
-[扬帆云机场最新官网](https://ct.affxc.com/yangfanyun)
+[迷途猫机场最新官网](https://zsfcn.top)
 
 #### 迷途猫机场套餐价格
 
